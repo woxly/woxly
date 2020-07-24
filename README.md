@@ -1,2 +1,1 @@
-### yeah so
-creating a readme within a repo named after yourself is a GitHub secret now..
+![https://i1.wp.com/www.rankred.com/wp-content/uploads/2018/09/Google-Dino-Roaring.gif?resize=716%2C231&ssl=1](dino)
